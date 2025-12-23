@@ -1,0 +1,20 @@
+
+The **Stonebound** are not a guild, a union, or a political bloc—they are a **culture of survival** embedded deep within Takari’s bones. Miners, tunnel wardens, forge-workers, and structural engineers all fall under the Stonebound identity, bound together by shared danger and inherited memory. Where other factions debate policy, the Stonebound measure decisions in cracked beams, buried friends, and tunnels that never reopened.
+
+To the Stonebound, the mountain is not a resource. It is a **living threshold**—something that must be listened to, respected, and never rushed. Their customs are old, passed quietly from parent to child: how to read stress lines in stone, when to abandon a promising vein, which tunnels feel _wrong_. These beliefs are often dismissed as superstition by merchants and scholars, but time has proven the Stonebound right more often than not.
+
+Their de facto leader is **[[Garrik Stonevein]]**, a grizzled tunnelmaster who has survived more collapses than most guards have skirmishes. Garrik commands no official authority, yet his word can halt an entire shift if he deems a shaft unsafe. He speaks bluntly, trusts slowly, and carries the weight of every life lost under his watch. Garrik does not fear poverty or punishment—he fears repeating the past.
+
+Representing the younger generation is **[[Mara Feldrun]]**, a structural engineer trained after the Underdark War. She bridges old instinct and modern technique, advocating for reinforcement, rerouting, and sometimes full abandonment of dangerous sections. Mara clashes constantly with the Lumenfell Consortium and Vance Industries, arguing that profit-driven schedules undermine long-term survival. Many see her as idealistic. The Stonebound see her as necessary.
+
+Among the forges, **[[Brenna Coalhand]]** holds quiet influence. A master smelter whose family has worked Lumenfell Ore for generations, Brenna oversees quality control and safety practices that unofficially exceed city regulations. She has refused lucrative contracts when the ore “felt unstable,” earning both respect and resentment. Brenna believes the mountain communicates through material behavior—and that ignoring those signs invites catastrophe.
+
+The most unsettling voice among the Stonebound belongs to **[[Old Tavin]]**, an elderly miner who no longer works the shafts but remains a fixture in Lower Ward taverns. Tavin claims to remember patterns others don’t—dreams miners used to share before collapses, symbols once carved near sealed tunnels, shifts that ended just before entire crews vanished. Many dismiss him as half-mad. Others listen carefully, especially when the ground begins to tremble.
+
+The Stonebound exist in constant tension with other factions. They distrust the Lumenfell Consortium’s appetite for depth, despise Vance Industries’ willingness to gamble with lives, and view the Collegium’s reassurances as dangerously incomplete. They tolerate the Council only because it sometimes listens—and because outright rebellion would fracture the city they are trying to protect.
+
+Despite their numbers, the Stonebound rarely act openly. Their resistance is quiet: slowed work, “unexpected” collapses in expansion shafts, tools that go missing when plans move too fast. They believe the mountain has already shown Takari what happens when it is ignored. Their role is to make sure the city remembers.
+
+### **What the Stonebound Want**
+
+The Stonebound want **survival without repetition**. They want dangerous depths left sealed, reckless expansion halted, and the mountain treated as something that sets limits—not something to be conquered. Above all, they want Takari to live _without digging itself into another grave_. They are not trying to stop progress. They are trying to stop history from finishing its sentence.

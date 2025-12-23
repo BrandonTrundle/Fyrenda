@@ -1,0 +1,20 @@
+
+**Vance Industries** is not merely a trade house—it is a **power structure disguised as commerce**. Officially, it is a sprawling mercantile enterprise dealing in Lumenfell ore refinement, transport contracts, luxury goods, and foreign trade. Unofficially, it functions like a syndicate: favors are currency, loyalty is enforced, and consequences arrive quietly. If the Lumenfell Consortium is a web, Vance Industries is a clenched fist.
+
+At the center of it all stands **[[Leedra Vance]]**, founder, matriarch, and undisputed authority. Leedra does not negotiate unless she already knows the outcome. She believes Takari’s rules exist for those without leverage and that morality is a luxury afforded only after victory. Under her leadership, Vance Industries has absorbed smaller trade houses, coerced rivals into dependency, and positioned itself as “too big to confront” without destabilizing the city’s economy.
+
+Leedra’s most trusted enforcer is **[[Kerrik Bale]]**, head of security and debt collection. Kerrik is a former caravan captain who understands violence as a tool best used sparingly and decisively. He does not threaten. He reminds. Missed payments, broken contracts, or disloyal partners tend to resolve themselves shortly after Kerrik pays a visit. His presence alone is often enough to end disputes without bloodshed—though not without fear.
+
+Managing the legal veneer of the operation is **[[Silva Renn]]**, Vance Industries’ contract-master and negotiator. Silva writes agreements that are airtight, predatory, and deceptively reasonable. She specializes in clauses that trigger penalties, asset forfeiture, or “temporary oversight” the moment a partner falters. Many independent merchants do not realize they work for Vance Industries until Silva informs them that they already do.
+
+The faction’s reach beyond Takari is handled by **[[Jorren Vale]]**, overseer of foreign trade and black-market exchange. Jorren maintains relationships with smugglers, foreign nobles, illicit buyers, and intermediaries the Council would rather pretend don’t exist. If something needs to move without inspection—or disappear entirely—it passes through Jorren’s hands. He is charming, unreliable, and terrifyingly effective.
+
+Internally, Vance Industries operates on strict hierarchy and selective generosity. Loyalty is rewarded lavishly: protection, wealth, advancement. Betrayal is met with financial ruin first, then social exile, and only rarely violence. Leedra prefers her enemies broken, not martyred. Many former rivals still live in Takari—quietly, humbly, and far from power.
+
+The faction maintains a tense relationship with nearly every other power in the city. The Council tolerates Vance Industries because confronting it would cripple trade. The Lumenfell Consortium resents it for bypassing infrastructure controls. The Stonebound distrust it for exploiting labor margins. The Collegium watches it closely, aware that Vance-funded experiments often skirt regulation. Leedra is aware of all of this—and enjoys it.
+
+What makes Vance Industries truly dangerous is not its ruthlessness, but its **adaptability**. Unlike older institutions bound by tradition or ideology, Vance Industries evolves with opportunity. If the mountain shifts, Leedra will already have contracts ready. If faith fractures, she will sell both sides supplies. If the city burns, she will own the ashes.
+
+### **What Vance Industries Wants**
+
+Vance Industries wants **dominance without accountability**. Leedra Vance wants Takari economically dependent on her networks, her contracts, and her protection. She does not seek the city’s destruction—she seeks to make it impossible for Takari to function without her permission. In the end, Leedra doesn’t want to rule Takari from a throne. She wants the city to realize, too late, that it already answers to her.

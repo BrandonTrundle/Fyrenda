@@ -1,8 +1,8 @@
 # Ignore everything by default
 /*
 # Allow these folders (and their contents)
-!/1. Freyenda/
-!/1. Freyenda/**
+!/1.  Freyenda/
+!/1.  Freyenda/**
 !/3. NPCs/
 !/3. NPCs/**
 # Allow the .gitignore itself

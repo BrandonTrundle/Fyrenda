@@ -1,0 +1,18 @@
+
+The **Takarian Guard** are not ceremonial soldiers or parade-watchmen—they are a **siege-born institution** forged in tunnels, collapses, and the aftermath of a city that once vanished without warning. Every modern doctrine the Guard follows was written in response to failure: slow responses, fractured command, and underestimating what lurked beneath the mountain. Today, the Guard exists to ensure that Takari never disappears quietly again.
+
+Unlike most city guards, the Takarian Guard is structured vertically, mirroring the city itself. Units are assigned by terrace and depth, with specialized tunnel-response teams trained for close-quarters combat, collapse rescue, and magical containment. Guards are expected to know evacuation routes, seal protocols, and emergency choke points by memory. Drills are frequent. Fatigue is normal. Survival is mandatory.
+
+At the operational heart of the Guard stands **[[Brennor Stoneward]]**, the acting military authority and Valla Rynn’s most trusted ally. Brennor is not a visionary; he is a stabilizer. He prioritizes readiness, morale, and clear chains of command above all else. While loyal to Valla, he occasionally clashes with her over resource strain, arguing that the Guard is being stretched thin by political indecision and economic pressure. He believes the next threat will not announce itself—and that hesitation will kill more people than monsters ever could.
+
+Overseeing internal security and intelligence is **[[Captain Ilvara Nox]]**, commander of the Watch Companies. Ilvara focuses on infiltration, sabotage, and unrest within the city walls. She tracks cult activity, smuggling routes, and unexplained disappearances with cold efficiency. Ilvara has little patience for politics or faith-based authority and is deeply suspicious of both the Lantern Faith and Vance Industries. Her reports are concise, unsettling, and often ignored until they are proven right.
+
+The Guard’s most controversial division is led by **[[Sergeant Korrin Ashfeld]]**, head of the Tunnel Wardens. Korrin commands units that patrol sealed zones, abandoned shafts, and unstable depths no one else wants to acknowledge. His teams encounter things they cannot always explain—distorted acoustics, impossible footprints, and equipment failures with no mechanical cause. Officially, Korrin files structural reports. Unofficially, he keeps a private ledger of incidents that defy classification.
+
+The final stabilizing force within the Guard is **[[Healer-Captain Maelis Rowan]]**, responsible for recovery, trauma response, and long-term care of injured guards. Maelis has become an unexpected authority on dream-fever, stress-induced hallucinations, and Lumenfell ore exposure. She believes many “supernatural” incidents begin as physical strain—but she no longer believes that explanation covers everything. Her quiet warnings have begun reaching Dekra Billinger’s desk.
+
+The Takarian Guard stands between every faction and open collapse. They enforce Council decrees, seal tunnels Dekra condemns, escort Collegium researchers, suppress Dreambound activity, and keep riots from igniting when food runs low or tremors shake the streets. They are respected, feared, and exhausted.
+
+### **What the Takarian Guard Wants**
+
+The Takarian Guard wants **clarity and preparation**. They want clear authority, honest intelligence, and the freedom to act before crises become disasters. Above all, they want the city to stop pretending that the next threat will look like the last one. Takari’s defenders know better: the mountain does not repeat itself cleanly—and neither do the wars it births.

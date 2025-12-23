@@ -1,0 +1,32 @@
+
+The **Lumenfell Consortium** is not a single guild, nor a formal council, but a **network of power bound by profit, pressure, and shared dependency on the mountain**. It exists wherever Lumenfell ore is mined, refined into Moonstone, transported, insured, or sold—which is to say, everywhere that matters in Takari. The Consortium has no banners and no public headquarters. Its authority flows through contracts, favors, supply chains, and quiet agreements sealed over ledgers rather than oaths.
+
+At its core, the Consortium believes one truth above all others: **Takari survives because the mountain gives**. Everything else—law, faith, safety, even history—is secondary to keeping that flow uninterrupted. When the Council hesitates, the Consortium pushes. When danger rises, the Consortium reframes it as cost. They do not see themselves as villains. They see themselves as realists doing what others are too afraid to admit is necessary.
+
+The unofficial architect of the Consortium’s modern form is **[[Haldrik Voss]]**, a veteran logistics magnate whose influence lies not in owning mines, but in controlling how ore moves once it leaves them. Haldrik understands that production means nothing without distribution. He knows every chokepoint, every warehouse, every route through the Lumenfell passes. Calm, meticulous, and ruthless when cornered, Haldrik treats Takari like a machine that must never stall—no matter how much heat builds inside it.
+
+Where Haldrik controls movement, **[[Seressa Moonvein]]** controls extraction. She oversees several of the deepest _legal_ mining operations and has built her reputation on delivering results others cannot. Seressa publicly champions worker efficiency and innovation, but privately believes fear of the deep has crippled Takari’s potential. She studies ancient mining records obsessively, convinced the First Takarians reached depths modern miners have forgotten how to survive. To her, the mountain is not warning them—it is daring them.
+
+The Consortium’s public face of respectability is maintained by **[[Torrin Feld]]**, master refiner and trade liaison. Torrin ensures Lumenfell ore shipments meet Collegium certification, oversees quality control, and manages foreign buyers who are eager but dangerous. He smiles easily, speaks carefully, and understands the value of appearing cooperative with the Council and the Collegium alike. Torrin’s role is not power, but _plausible deniability_. When something goes wrong, he makes sure it never quite traces back to the Consortium.
+
+Less visible—but increasingly important—is **[[Maela Corven]]**, a financial broker specializing in speculative Lumenfell ore futures. Maela does not touch stone or steel; she moves coin, debt, and obligation. She finances risky expansions through shell ventures and quietly absorbs failed operations before the Council can investigate. Maela believes Takari’s future will belong to those who prepare for instability, not those who deny it. If the mountain shifts, she intends to be holding the contracts that matter afterward.
+
+Internally, the Lumenfell Consortium is divided. One faction—the **Continuists**—believes steady expansion and shallow safety reforms are enough to sustain Takari indefinitely. The other—the **Deep Advocates**—argues the city is already losing ground by refusing to reclaim forgotten depths. This ideological split creates friction, but not paralysis. Both sides agree that **inaction is the greatest threat**. If the city stops mining, trading, and growing, it will be consumed by competitors—or by the mountain itself.
+
+The Consortium’s relationship with other factions is transactional at best and adversarial at worst. They tolerate the Council, manipulate the Collegium, placate the Lantern Faith, and resent the Stonebound. They consider historians dangerous, cultists irrelevant, and Underdark threats “operational hazards.” Their greatest blind spot is their confidence that every risk can be priced, mitigated, or postponed.
+
+### **What the Lumenfell Consortium Wants**
+
+The Lumenfell Consortium wants **uninterrupted extraction and controlled expansion**. They want deeper access to the mountain, fewer restrictions on mining operations, and long-term dominance over Lumenfell ore trade across Freyenda. More dangerously, they want to **prove that Takari’s past collapse was a failure of nerve, not a warning**. If that belief is wrong, the Consortium will be the faction that digs far enough—and fast enough—to wake whatever the mountain has been trying to forget.
+
+### **The Lumenfell Consortium & Vance Industries**
+
+The relationship between the **Lumenfell Consortium** and **[[Vance Industries]]** is defined by **mutual dependence and constant friction**. On paper, their interests align: Lumenfell ore must flow, trade must expand, and Takari must remain indispensable. In practice, they despise how the other operates. The Consortium deals in infrastructure, logistics, and long-term leverage. Vance Industries deals in dominance, branding, and immediate advantage.
+
+[[Leedra Vance]] treats the Consortium less as partners and more as a resource to be exploited. She bypasses Consortium channels whenever possible, leveraging her private caravans, exclusive contracts, and foreign buyers to undercut prices or force concessions. Where the Consortium prefers quiet influence and shared control, Leedra prefers visibility and ownership. She does not want a seat at the table—she wants to _own the table_.
+
+The Consortium, in turn, views Vance Industries as dangerous and short-sighted. Leedra’s aggressive expansion destabilizes carefully managed supply chains and attracts scrutiny from the Council and the Collegium. More than once, Consortium members have had to quietly absorb the fallout from one of her gambits to prevent broader investigation into Lumenfell ore operations. They resent being forced into cleanup roles for risks they did not approve.
+
+Neither side can move openly against the other. Vance Industries relies on Consortium-controlled infrastructure to move bulk shipments efficiently, while the Consortium depends on Vance trade networks to maintain Takari’s dominance beyond the mountains. Their conflict plays out through contracts, delays, price manipulation, and political pressure—not blades or open accusation.
+
+In short, they are allies by necessity and rivals by nature. Leedra Vance believes she can outgrow the Consortium. The Consortium believes she will eventually overreach. Both are waiting to be proven right.
