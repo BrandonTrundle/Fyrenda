@@ -1,0 +1,11 @@
+# Ignore everything by default
+/*
+# Allow these folders (and their contents)
+!/1/
+!/1/**
+!/2/
+!/2/**
+!/3/
+!/3/**
+# Allow the .gitignore itself
+!.gitignore
