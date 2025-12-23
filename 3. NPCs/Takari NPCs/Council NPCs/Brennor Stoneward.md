@@ -1,0 +1,13 @@
+## Shield of Takari
+
+Brennor Stoneward is the kind of man cities survive because of, not the kind they celebrate. Broad-shouldered, scar-lined, and quietly relentless, Brennor has spent most of his life standing where things break first—tunnel breaches, collapsing defenses, command structures under fire. As [[Valla Rynn]]’s right hand, both during the **Underdark War** and in the uneasy peace that followed, Brennor is less an advisor than a **counterweight**, grounding decisive leadership with lived consequence.
+
+During the Underdark War, Brennor served as Valla’s second-in-command from the moment Marshal Hadrik Voen fell. Where Valla saw the battlefield as a whole, Brennor managed its moving parts—rotations, fallback points, casualty extraction, and discipline under impossible pressure. He was the one who held lines while orders changed, who made sure retreats did not become routs. Many guards credit Brennor, quietly and without exaggeration, with the reason they are still alive.
+
+Brennor’s loyalty to Valla is absolute, but not blind. He challenges her in private when decisions threaten to overextend the Guard or place civilians at unnecessary risk. These disagreements are never emotional and never public. Brennor believes command must be unified outwardly, even when it fractures inwardly. When Valla makes a final call, Brennor executes it without hesitation—even when he disagrees.
+
+As Acting Commander of the Takarian Guard, Brennor prioritizes readiness over optics. He distrusts political interference, resents economic pressure placed on military operations, and has little patience for religious authority within command space. He works closely with [[Dekra Billinger]], respecting her structural assessments even when they force difficult redeployments. He is deeply suspicious of Vance Industries and openly hostile to any attempt to shortcut safety in the name of profit.
+
+Personally, Brennor is reserved to the point of invisibility. He does not drink much, does not gamble, and rarely speaks about the war unless pressed. Those close to him know he carries survivor’s guilt from decisions that saved the city at the cost of entire squads. He keeps their names written in a small, worn ledger he never leaves behind.
+
+Brennor Stoneward does not believe Takari is safe. He believes it is **standing**—and that standing is temporary unless guarded constantly. If Valla is the will of Takari, Brennor is its endurance: the man who ensures that when the city makes a stand, it actually holds.

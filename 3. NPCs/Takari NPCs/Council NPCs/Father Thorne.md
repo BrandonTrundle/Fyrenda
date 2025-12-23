@@ -1,0 +1,9 @@
+Father Thorne is the most divisive religious figure in Takari, a man whose certainty cuts deeper than any blade. As the senior cleric of the Lantern Faith, he preaches vigilance, repentance, and obedience with absolute conviction. To his followers, Thorne is a necessary warning—proof that the light must be guarded aggressively in a city built atop forgotten sins. To his critics, he is fear given a pulpit.
+
+Thorne believes Takari’s endless night is not coincidence, but consequence. In his sermons, disaster is never random; it is punishment delayed. He frames tremors, dream-fevers, and disappearances as symptoms of spiritual decay, insisting that the city has grown complacent and arrogant. Where others seek explanation, Thorne seeks correction. Where others demand proof, he demands submission.
+
+Unlike many clerics, Thorne is not ignorant of Takari’s deeper history—he is selective about it. He knows fragments of pre-collapse worship remain buried beneath the city, and he considers them corrosive. His goal is not to understand those forces, but to _smother them_. He actively pressures the Council and the Archivist Circle to limit research, seal tunnels, and erase symbols that do not conform to Lantern doctrine.
+
+Personally, Thorne is austere and confrontational. He does not soften his words for comfort, nor does he retreat when challenged. He respects authority only when it aligns with what he believes is divine will. His relationship with Mayor Valla Rynn is openly strained; he views her pragmatism as moral weakness, and she views his sermons as accelerants in an already volatile city.
+
+Thorne does not fear being wrong. He fears being ignored. And in Takari, fear has a way of making people listen.

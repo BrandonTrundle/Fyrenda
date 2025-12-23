@@ -1,0 +1,7 @@
+Valla Rynn is the reason Takari still stands. Her authority was forged not through lineage or ambition, but through decisive leadership during the Underdark War, when hesitation meant death and clarity meant survival. She carries herself with the posture of a soldier long after leaving the battlefield—direct, unsentimental, and intolerant of wasted motion. In council chambers and on the streets alike, her presence brings order simply by existing.
+
+Valla governs as if the city is still under siege. Every patrol route, ration report, and structural inspection matters to her, because she knows how quickly stability collapses when vigilance fades. She distrusts comforting narratives and has little patience for tradition when it interferes with preparedness. To Valla, Takari is not a symbol—it is a responsibility that never sleeps.
+
+Though respected by nearly all factions, she is deeply isolated. The burden of leadership has eroded her personal life, her health, and her ability to rest. She does not share this weakness, fearing it would undermine confidence in her rule. Instead, she endures, believing that a tired protector is better than an absent one.
+
+Valla’s greatest fear is not invasion, rebellion, or divine wrath—it is failing to act in time. If Takari falls again, she is certain history will remember not the mountain or the gods, but her hesitation.
