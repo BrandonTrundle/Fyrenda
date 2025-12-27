@@ -1,1 +1,0 @@
-Iralia is a drow, who was basically left on a doorstep somewhere. She doesn't like Dwarves, is a rogue, and steals from Dwarves often. She used to travel with a different adventuring party, and is now searching for someone named Creever.
